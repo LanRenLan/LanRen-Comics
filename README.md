@@ -11,3 +11,4 @@
 # 濃口kiki系列
 ![01_c1_1](https://github.com/LanRenLan/LanRen-Doujinshi/assets/112599739/96f5e1f4-25a2-4417-9261-5a680e7892e0)
 ![01_c1 2](https://github.com/LanRenLan/LanRen-Doujinshi/assets/112599739/f43fdc66-78e2-4fb1-8341-6ba569547a80)
+![01_c1](https://github.com/LanRenLan/LanRen-Doujinshi/assets/112599739/490883ee-02dc-42ce-a042-4a045df1174d)
